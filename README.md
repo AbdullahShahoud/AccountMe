@@ -26,6 +26,9 @@ Try our app now and maximize your business!
 ![localhost_59882_(Pixel 7) (5)](https://github.com/user-attachments/assets/29f72be1-4a24-44c7-9b63-a5907ee81144)
 
 
+![localhost_59882_(Pixel 7) (8)](https://github.com/user-attachments/assets/22fa05b6-6efa-42f8-b5b7-e0dd389d6240)
+![localhost_59882_(Pixel 7) (7)](https://github.com/user-attachments/assets/9a3ce08a-6d62-4de2-8561-5dc4a088e416)
+![localhost_65063_(Pixel 7)](https://github.com/user-attachments/assets/ef31b5b3-506e-4a6a-8d9b-feeaa511b5fc)
 
 
 
